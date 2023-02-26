@@ -1,1 +1,0 @@
-# practicas2023
